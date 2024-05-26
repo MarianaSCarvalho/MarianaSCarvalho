@@ -11,9 +11,9 @@ Meu nome é MarianaSCarvalho
 
 00001103819811sp@al.educacao.sp.gov.br
 
+![](https://github.com/MarianaSCarvalho/MarianaSCarvalho/assets/170862819/c3401d37-3d38-4cfc-a5e8-8a7ba35d8243)
 
-![](![image](https://github.com/MarianaSCarvalho/MarianaSCarvalho/assets/170862819/26d0aed1-13e1-48b1-a793-ea66ee66876f)
- )
+
 
 
 
